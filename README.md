@@ -9,5 +9,5 @@ Due to Covid-19, the 2020 football season has taken many precautions and changes
 ### Where you can watch Football on Sunday
 
 Football can be viewed on many streaming sites and even on cable with channels such as TNT, ESPN, and so on. Thought cable has the games, they can be viewed for free and even include the interactive experiences of live chats on streaming sites such as buffstreams and topstreamer. There are many options to watch football on Sunday depending on your location, internet capablities, preferences, and so on. 
-[link to streaming site](https://nflbite.com) has the links to many different sites that live stream all the games. You click the game you would like to view and a list of links to different streaming sites come up. Warning: They sometimes have a lot of pop up ads that you must click off. 
+[NFL Bite](https://nflbite.com) has the links to many different sites that live stream all the games. You click the game you would like to view and a list of links to different streaming sites come up. Warning: They sometimes have a lot of pop up ads that you must click off. 
 [link to image](https://screenshots.statscrop.com/b/uf/fst/rea/ms/tv/thumbnail.jpg)
