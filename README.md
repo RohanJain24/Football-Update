@@ -4,8 +4,10 @@ This website was made to update you about the football world (2020 season) and h
 ### Current Football Events
 
 Due to Covid-19, the 2020 football season has taken many precautions and changes to regulation. With the importance of masks and safety, there are mandatory check ups and regulations for each team. A bubble will be implemented for the playoffs. This year, sadly, there was no preseason. This led to the injuries of many players who were not prepared for the regular season. There was also regulations preventing fans from attending games. This caused the importance of streaming sites to go up and also the players morale to go down. Many issues continue to arise from the coronavirus and players and staff sometimes contract the virus. We will continue to keep you updated as the situation develops. 
+(https://s.yimg.com/ny/api/res/1.2/lHIJO0EGMLMZnpvJWDm5mw--~A/YXBwaWQ9aGlnaGxhbmRlcjtzbT0xO3c9ODAw/https://media-mbst-pub-ue1.s3.amazonaws.com/creatr-uploaded-images/2020-06/1640ad30-a5c1-11ea-8edb-b6acfd54ec48)
 
 ### Where you can watch Football on Sunday
 
 Football can be viewed on many streaming sites and even on cable with channels such as TNT, ESPN, and so on. Thought cable has the games, they can be viewed for free and even include the interactive experiences of live chats on streaming sites such as buffstreams and topstreamer. There are many options to watch football on Sunday depending on your location, internet capablities, preferences, and so on. 
 (https://nflbite.com) has the links to many different sites that live stream all the games. You click the game you would like to view and a list of links to different streaming sites come up. Warning: They sometimes have a lot of pop up ads that you must click off. 
+(https://screenshots.statscrop.com/b/uf/fst/rea/ms/tv/thumbnail.jpg)
