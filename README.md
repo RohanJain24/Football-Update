@@ -3,7 +3,7 @@ This website was made to update you about the football world (2020 season) and h
 
 ### Current Football Events
 
-
+Due to Covid-19, the 2020 football season has taken many precautions and changes to regulation. With the importance of masks and safety, there are mandatory check ups and regulations for each team. A bubble will be implemented for the playoffs. This year, sadly, there was no preseason. This led to the injuries of many players who were not prepared for the regular season. There was also regulations preventing fans from attending games. This caused the importance of streaming sites to go up and also the players morale to go down. Many issues continue to arise from the coronavirus and players and staff sometimes contract the virus. We will continue to keep you updated as the situation develops. 
 
 ### Where you can watch Football on Sunday
 
